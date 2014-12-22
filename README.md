@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Certaine sermons preached upon severall occasions viz. The vvay to prosper. The vvay to be content. 
+
 **Types of content**
 
   * There are 1 **verse** lines!
